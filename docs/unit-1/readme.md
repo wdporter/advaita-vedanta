@@ -1,12 +1,12 @@
-Om
+Om ॐ
 
 nArAyaNam padmabhavam vasishTam shaktim cha tat putram parAsharam cha vyAsam  
 shukam gowDapadam mahAntam gOvinda pAda yOgIndram atha asya shishyam sri  
 shankarAchAryam atha asya shishyAm padmapAdam cha hastAmalakam cha shishyam  
 tam tOTakam vArtikakAram anyAn asmad gurUn santatam AnatOsmi
 
-Salutations to the guru paramparA - narAyaNa to brahma to vasishta … sri  
-ShankarachArya…, his disciples padmapAda, hastAmalaka, tOtaka and the  
+Salutations to the guru parampara - narayana to brahma to vasishta … sri  
+Shankaracharya…, his disciples padmapada, hastamalaka, totaka and the  
 followers of this lineage of gurus.
 
 shruti smriti purANAnAm Alayam karuNAlayam  
@@ -15,27 +15,27 @@ namAmi bhagavat pAda shankaram lOkashankaram
 shankaram shankarAchAryam kEshavam bAdarAyaNam  
 sUtrabhAshya kritou vandE bhagavantau punah punah
 
-Prostrations again and again at the feet of bhagavAn Shankara, the  
-storehouse of scriptures - shruti, smriti and purANAs - and who is also  
+Prostrations again and again at the feet of bhagavan Shankara, the  
+storehouse of scriptures - shruti, smriti and puranas - and who is also  
 a storehouse of compassion, who confers happiness and prosperity, who  
-has written commentary on the sUtras and belongs in the lineage of the  
-guru parampara of kEshava, bAdarAyanA ..
+has written commentary on the sutras and belongs in the lineage of the  
+guru parampara of keshava, badarayana ..
 
 First, having offered the traditional salutations to the Guru Parampara  
-(lineage of teachers), let us chant the following shAnti mantra;
+(lineage of teachers), let us chant the following shanti mantra;
 
 Om saha nA-vavatu, saha nou-bhunaktu, saha-vIryam karavAvahai  
 tEjasvi nA-vadhItam astu mA vid-vishAvahai; Om shAntih shAntih shAntih
 
 Let us be protected together; let us be cultivated together; let us gain  
 strength and power together; let our study be successful; let us not  
-hate each other; Om peace, Peace and Peace (for all).
+hate each other; Om ॐ peace, Peace and Peace (for all).
 
-The scriptures of sanAtana dharma - called "darshana shAstrAs" are  
-nyAya, vaishEshika, sAmkhya,yOga, mImAmsa and vEdAnta, respectively the  
+The scriptures of sanatana dharma - called "darshana shastras" are  
+nyaya, vaisheshika, samkhya, yoga, mimamsa and vedanta, respectively the  
 sciences of Logic, Nature, Knowledge, Deep Meditation or concentration  
-of mind, Rituals of the vEda and the Philosophy of the Self. Though  
-VaishEshika is regarded as the study of nature, nature is integral in  
+of mind, Rituals of the veda and the Philosophy of the Self. Though  
+Vaisheshika is regarded as the study of nature, nature is integral in  
 the study of all the six Darshanas. A self evident thought common for  
 all of them is "The whole creation is ultimately intended for the  
 experience of the soul (Atman)".
